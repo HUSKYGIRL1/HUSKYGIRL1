@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Chimmy
-- 👀 I’m really nosey
-- 🌱 I can't mind my own business 
+- 💅 I’m really sassy
+- 👀 I can't mind my own business 
 - 💞️ I have 7 bf's that don't know I'm their gf
 - 🥴 I'm extremely delulu
 - 🌚 I'm part of the most innocent army
