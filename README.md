@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @HUSKYGIRL1
-- 👀 I’m interested in huskys
-- 🌱 I’m currently learning new tags
-- 💞️ I am kind
-- ❤️ I love BTS
-- 📫 How to reach me:jannatsodhi123@gmail.com 
-- :) have a good day!
+- 👋 Hi, I’m Chimmy
+- 👀 I’m really nosey
+- 🌱 I can't mind my own business 
+- 💞️ I have 7 bf's that don't know I'm their gf
+- 🥴 I'm extremely delulu
+- 🌚 I'm part of the most innocent army
+- 💀 No I'm not crazy 
