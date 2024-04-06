@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Chimmy
+- 👋 Hi, I’m Janni
 - 💅 I’m really sassy
 - 👀 I can't mind my own business 
 - 💞️ I have 7 bf's that don't know I'm their gf
